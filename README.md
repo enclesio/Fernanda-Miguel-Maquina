@@ -13,3 +13,5 @@ Through her efforts, this young deputy, who is an inspiration to many, mobilized
 This story serves as a reminder that every act of kindness, no matter how small, can significantly impact someone's life. We salute Fernanda's noble gesture and hope it inspires each one of us to lend a helping hand.
 
 Photo 1: Fernanda's generous donation to the mother of five.
+
+![banner](https://i.ibb.co/7RbG3nK/PHOTO-2024-07-16-14-54-17-3.jpg) 
