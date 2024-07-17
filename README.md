@@ -1,10 +1,15 @@
-![banner](https://user-images.githubusercontent.com/23727056/87433896-78ae9700-c607-11ea-9ca6-9cdbe3f67998.jpg)
+![banner](https://i.ibb.co/CbHwGJS/PHOTO-2024-07-16-14-54-09-2.jpg)
 
-The aim of this repository is to collect awesome READMEs that developers around the world are using on their own profiles to act as an inspiration for others.
-Video about [GitHub Profile README](https://twitter.com/github/status/1294348292130836482?s=20)
+A NOBLE ACT IN BENGUELA
 
-Feel free to add your own or someone else's profile README if you find it super awesome! 
+By: WN
 
-Don't forget to leave a if you find this repo useful ⭐
+Today, a kind-hearted soul showed what it truly means to be compassionate. Fernanda Mariana Ngala Miguel Máquina, the Children's Deputy of Benguela, went above and beyond to aid a mother of five.
 
-Thankyou🎆
+Fernanda heard of a mother's challenging situation: welcoming triplets while already having two young children. Knowing the family needed help, she sprang into action. Accompanied by the Provincial Director of INAC and the Municipal Directorate of Social Action, she personally delivered essential goods to the mother, who also works in the fields to make ends meet.
+
+Through her efforts, this young deputy, who is an inspiration to many, mobilized sponsors and gathered necessities to ease the family's burden. She demonstrated that age is no barrier to making a profound difference in people's lives.
+
+This story serves as a reminder that every act of kindness, no matter how small, can significantly impact someone's life. We salute Fernanda's noble gesture and hope it inspires each one of us to lend a helping hand.
+
+Photo 1: Fernanda's generous donation to the mother of five.
